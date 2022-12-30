@@ -1,1 +1,3 @@
 - [The Realities of Car Building](https://youtu.be/jRenzlheSx0)
+- [Think Before You Spend](https://youtu.be/rm0ikxqBMmU)
+- [Anatomy Of A Gasser](https://youtu.be/4cUvgRBq9Fo)
