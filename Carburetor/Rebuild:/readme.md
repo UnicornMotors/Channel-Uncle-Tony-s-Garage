@@ -1,1 +1,2 @@
-[$18 Edelbrock Carburetor Rebuild](https://youtu.be/Lsl9D8AmKIk)
+- [$18 Edelbrock Carburetor Rebuild](https://youtu.be/Lsl9D8AmKIk)
+- [Carburetor Rebuilding Trick For Beginners](https://youtu.be/QUubgWPLctk)
