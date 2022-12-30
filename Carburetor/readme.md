@@ -23,13 +23,3 @@ sch: https://www.youtube.com/@UncleTonysGarage/search?query=carburetor
 ## Idle
 - [The Most Useful Carburetor Video Ever Made](https://youtu.be/BpHC-SQVXH8)
 - [Mostly Universal Carburetor Setup And Adjustment Made Simple. How To Achieve A Clean Smooth Idle](https://youtu.be/1K43mK39jTM)
-
-# Make:
-## Holley
-[Holley's Great Defect By Omission - Or, How To Fix That Mysterious Off The Line Stumble](https://youtu.be/tR5dWEfkGo0)
-
-## Edelbrock
-[Holley: "Carburetors are dead" Edelbrock: " Hold my beer" - The New VRS 4150 Is The Ultimate Carb](https://youtu.be/etj8jPviGmQ)
-
-## Chinese
-[Unboxing A Cheap Amazon Knock-off Chinese Carburetor](https://youtu.be/x9aGypHX4f0)
