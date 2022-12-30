@@ -1,4 +1,8 @@
 # Make:
+## Carter
+### Thermoquad
+- [Perfect Daily Driver 12- Adventures In Carburetor Land](https://youtu.be/vVET2orGO_s)
+
 ## Holley
 - [Holley's Great Defect By Omission - Or, How To Fix That Mysterious Off The Line Stumble](https://youtu.be/tR5dWEfkGo0)
 
