@@ -19,7 +19,9 @@
 ## Rochester
 - [Review Of The Rochester Quadrajet - The Most Common 4 Barrel On Earth](https://youtu.be/lqItgkp-evg)
 - [The Quadrajet](https://youtu.be/zYO1jrVzsG8)
-- []()
+
+### by: EnginePower
+- [How to Rebuild a Carburetor: Quadrajet 4 Barrel - Muscle Car S4, E18](https://youtu.be/Cs8G0AJExCc)
 
 # Comparison
 - [Cheap Carb Shootout- Edelbrock VS Summit 600's](https://youtu.be/lsM2ED2FssI)
