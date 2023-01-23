@@ -1,1 +1,3 @@
 - [Mostly Universal Carburetor Setup And Adjustment Made Simple. How To Achieve A Clean Smooth Idle](https://youtu.be/1K43mK39jTM)
+- [Mechanical & Vacuum Secondary Holley VS Carter/Edelbrock, Rochester Velocity Style Carburetors](https://youtu.be/-avtcub3W6o)
+- [Getting A Good Clean Idle From Your Carbureted Engine - Here's How Idle Systems And Circuits Work](https://youtu.be/esf-4HcYHtE)
