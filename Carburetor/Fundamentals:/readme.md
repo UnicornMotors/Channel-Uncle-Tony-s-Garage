@@ -2,6 +2,7 @@
 - [Mechanical & Vacuum Secondary Holley VS Carter/Edelbrock, Rochester Velocity Style Carburetors](https://youtu.be/-avtcub3W6o)
 - [Getting A Good Clean Idle From Your Carbureted Engine - Here's How Idle Systems And Circuits Work](https://youtu.be/esf-4HcYHtE)
 - [The Myths And Realities Of Carburetor Sizing- History Proves The Formulas Don't Work](https://youtu.be/HdF7IAWFT8w)
+- [The Evolution Of Factory Tri-Power/Six Pack and Dual Quad Intakes For The Street](https://youtu.be/fLXV5wpXnLo)
 - [Holley: "Carburetors are dead" Edelbrock: " Hold my beer" - The New VRS 4150 Is The Ultimate Carb](https://youtu.be/etj8jPviGmQ)
 - [$8 Cure For Vapor Lock](https://youtu.be/-t6geNGbEXM)
 - [The Most Troublesome Part Of Any Carbureted Car](https://youtu.be/9kiVAzf1vCU)
