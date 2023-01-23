@@ -1,1 +1,2 @@
 - [Buying Classic Cars- How To Do A Field Assessment](https://youtu.be/LdofhbH8ufQ)
+- [Classic Car Buying Red Flags- Evaluating Cars Via Video](https://youtu.be/WpOFRRsEv34)
