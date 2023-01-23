@@ -7,3 +7,4 @@
 - [$8 Cure For Vapor Lock](https://youtu.be/-t6geNGbEXM)
 - [The Most Troublesome Part Of Any Carbureted Car](https://youtu.be/9kiVAzf1vCU)
 - [The Most Useful Carburetor Video Ever Made](https://youtu.be/BpHC-SQVXH8)
+- [Classic Car Tech- Understanding Carburetors](https://youtu.be/nytI-8__hms)
