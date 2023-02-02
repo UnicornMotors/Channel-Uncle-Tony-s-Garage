@@ -1,1 +1,2 @@
+- [Your First Engine Job - Pulling The Head And Assessing The Damage](https://youtu.be/-52h51cjv5U)
 - [Your First Engine Job - This Is What A BAD Cylinder Head Looks Like](https://youtu.be/rCnmoajqMJw)
